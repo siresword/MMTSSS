@@ -1,7 +1,9 @@
 MMTSSS
 ======
 Twilight Sparkles Secret Shipfic Folder The Card Game is © Horrible People Studios.
+
 Fallout: Equestria is © Kkat.
+
 All other sidefics are © to their respective authors.
 
 Hello Shippers and welcome to Ministry Mare Twilights Secret Shipping Stable: The Fan Made Expansion! This is an
